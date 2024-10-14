@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @santyadavcoder
-- 👀 I’m interested in Exporling New Things 
+- 👀 I’m interested in exploring  New Things,place,Foods
 - 🌱 learning  something NEW is my habit 
 - 💞️ I’m looking to FOR Someone Who Make COFEE For Me
 - 📫 How to reach me santyadavsd@gmail.com
